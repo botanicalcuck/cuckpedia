@@ -1,0 +1,2 @@
+# cuckpedia
+yal cukck
